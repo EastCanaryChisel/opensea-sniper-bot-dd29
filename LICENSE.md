@@ -1,4 +1,4 @@
-# 
+# opensea sniper bot high-frequency Bot - stop-loss and slippage-control is the best opensea sniper bot, featuring stop-loss and slippage-control. Fast, smart, and optimized for NFT
 
 
 
